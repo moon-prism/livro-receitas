@@ -1,4 +1,4 @@
-# Lemon curd
+# Lemon curd :lemon:
 
 O lemon curd é um tipo de geleia ou creme de limão (feito de limão siciliano) que é super versátil como acompanhamento de bolos, biscoitos e recheio de tortas.
 
